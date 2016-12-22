@@ -1,0 +1,2 @@
+# -maid2match
+Maid2Match is about fundamentally changing the way people tackle their house cleaning. It was once the case that we all had enough time to do everything we wanted to: work, spend time with our family and stay healthy. And we didn’t have to compromise on living in a space which we were proud of. Proud for our own family and also ok to have friends or family drop by unannounced without having to scramble to clean up the house.
